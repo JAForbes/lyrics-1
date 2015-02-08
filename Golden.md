@@ -1,0 +1,42 @@
+```
+I miss you uncontrollably, I still have your picture in my wallet.
+I lay awake staring at stilted well-lit streets and air conditioned hallways.
+I think of June Carter, I dress in black, I am the hero.
+
+Him in your golden hands.
+Not jealous.  No access.
+Ultimately, I feel betrayed.
+
+Studying only what does distress you.
+Exercise what does impress you.
+Ultimately pointless.
+
+Absinthe and complimentary beers,
+built around musings of you.
+Accoutrements.
+
+Him in your golden hands.
+Not jealous.  No access.
+Him in your golden hands.
+Not waiting.  Just at rest.
+Him in your golden hands.
+Not jealous.  No access.
+
+Ultimately, I feel betrayed.
+
+Waking up at midnight with your girlfriend on your mind.
+But you're going back in time.
+For these moments are not mine.
+You and me have been resigned, 
+we have gone our separate ways
+and you've shown me how that works.
+
+Broke up in high school and that seems so long ago.
+When everything was childs play.
+But I couldn't keep her hanging on.
+I miss being so close to you, I miss hanging out with you, is that so crazy?
+We were only just kids.
+She doesn't know me.  I'm so different back then.  I'm just illogical.
+I should go back to sleep.
+
+```
